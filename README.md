@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Atiq Ur Rehman
-**A passionate AI ML Engineer | KPK Bannu from Pakusatan**
+**A passionate AI ML Engineer | KPK Bannu from Pakisatan**
 
 Email Me 👉 ✉️ **atiqurrehmandatascientist@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
